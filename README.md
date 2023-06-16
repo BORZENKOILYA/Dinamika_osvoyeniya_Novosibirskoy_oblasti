@@ -1,0 +1,1 @@
+# Dinamika_osvoyeniya_Novosibirskoy_oblasti
